@@ -1,5 +1,5 @@
 ## MY LOVES
-
+Characters from Dull's project!!
 <img width="3303" height="3987" alt="FDKJGHFD-REDRAW2 (1)" src="https://github.com/user-attachments/assets/695d121d-339a-4135-acdd-5730369c3879" />
 <img width="2561" height="2889" alt="GFDJGHD" src="https://github.com/user-attachments/assets/8814d26e-2592-4c28-85cd-e36ed62881b5" />
 <img width="3965" height="4152" alt="FDKJGHFD" src="https://github.com/user-attachments/assets/4414db56-3918-489d-9e55-b47b034c1f92" />
